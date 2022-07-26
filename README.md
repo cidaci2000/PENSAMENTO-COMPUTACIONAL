@@ -1,2 +1,2 @@
 # # PENSAMENTO-COMPUTACIONAL
-https://cidaci2000.github.io/PENSAMENTO-COMPUTACIONAL/
+imagem (pagina.png)
